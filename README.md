@@ -1,2 +1,0 @@
-# Xstore
-Yang baca jembud
